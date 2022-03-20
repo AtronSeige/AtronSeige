@@ -1,0 +1,3 @@
+- 👋 On the internet I am known as @AtronSeige. I am a husband, a coder, a homebrewer and a n00b gamer.
+- 👀 I like a few things, my wife being the most liked. I also like beer, poi, magic, code, music.
+- 🌱 I’m currently learning how to swear at git.
